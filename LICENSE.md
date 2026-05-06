@@ -1,4 +1,4 @@
-
+Experience evade like never before with advanced evade Scripts, the #1 Script. Includes anti-ban and teleport for unbeatable performance.
 
 
 
